@@ -1,2 +1,2 @@
 Thing for my AP CS A class
-So's most of the other stuff on here (currently all) but still
+Appearently its a reference to a hiphop song from the early 90s
